@@ -1,2 +1,4 @@
 # hello-world
-Time pass
+Hi peeps!
+Whats up..?
+ENJOY & RELAX:)
